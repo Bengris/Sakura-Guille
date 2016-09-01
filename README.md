@@ -1,3 +1,4 @@
 # Sakura-Guille
-Videojuego en desarrollo por unos faggets.
+Videojuego en desarrollo por unos faggets
 No hay mucho que decir
+anal
